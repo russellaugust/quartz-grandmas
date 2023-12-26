@@ -1,0 +1,11 @@
+# Abner Videl's Filmography
+- The Devil Women from Planet I - IX
+- Return of the Devil Women from Planet X
+- Zombie High School
+- Barracuda II: The ‘Cuda Sleeps at Night
+- Barracuda VIII: ‘Cuda in Space
+- Tentacle Monsters from Uranus IV: Slime 'em and Leave 'em
+- Suburban Murder Mommy
+- Mermaids of the OSS
+- BC Buxom Barbarians
+- Cuda Girl: Barracuda in Love

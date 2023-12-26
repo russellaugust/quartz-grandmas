@@ -1,0 +1,3 @@
+Thin. Graceful. Well-dressed. Naturally, she’s upset about the death of her husband, but she seems equally distraught about how all of this might aﬀect the 4th Annual Warrior’s Ball, an upcoming charity event for veterans suﬀering from testicular cancer that she’s hosting a week from now.
+
+Quote: “It’s just like Albert to go and get himself killed when I’m on the precipice of charity fundraiser greatness! The man could be so self-involved!”

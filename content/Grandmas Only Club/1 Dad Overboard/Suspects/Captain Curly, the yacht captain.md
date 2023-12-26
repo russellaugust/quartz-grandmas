@@ -1,0 +1,3 @@
+Dazzling officer’s whites. Megawatt smile. Gray at the temples. Captain Carl “Curly” Willoughby has worked for the Krause family for years. He’s a Brindlewood Bay native, and the reason the family vacations here.
+
+Quote: “I convinced Mr. and Mrs. Krause to start coming out this way about ten years ago. Brindlewood Bay was a backwater as far as they were concerned, but I’ve been slowly teaching them about the local history and culture. Are you a native of Brindlewood Bay?”

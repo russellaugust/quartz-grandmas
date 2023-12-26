@@ -1,0 +1,4 @@
+# Marcus Greaves, the manager
+Handsome. Piercing eyes. No costume. Marcus is Abner’s business manager. He’s been with Abner for over twenty years, looking after his aﬀairs, arranging opportunities, negotiating contracts… and always getting his ten percent.
+
+*Quote: “These parties are such a waste of time. The people in this backwater—no offense—are never going to accept Abner as one of their own, so I’m not sure why he even tries. I need to get him back to Hollywood—Los Angeles misses Abner Vidal. I know he’s upset about how poorly ‘Cudat Girl? Barracuda in Love was received, but anyone could have told you that long-time fans of the Barracuda franchise were never going to accept a romcom twist!”*

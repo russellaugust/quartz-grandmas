@@ -1,0 +1,3 @@
+Silver beard. Hale. Does a “romantic Frenchman of the sea” performance for tourists, but is actually from Scranton. Etienne is an old friend of the Krauses, and has agreed to store Albert’s body as a kindness to the family.
+
+Quote: “I’d do anything for the Krauses. Everything I have in this world is because of them. When they told me they needed somewhere cold to store Albert’s body, I was more than happy to make room between the cod and the pollock.”
